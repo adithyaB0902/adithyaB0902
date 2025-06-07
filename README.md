@@ -5,7 +5,6 @@
 - 📫 How to reach me is by my mail:adithya0902e@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ambivert and has intresting in learing new things.
-- 
 
 <!---
 adithyaB0902/adithyaB0902 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
